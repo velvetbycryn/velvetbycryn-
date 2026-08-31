@@ -1,6 +1,6 @@
 <div align="center">
 
-<img [![1002184944-removebg-preview.png](https://i.postimg.cc/X7bfrPQ0/1002184944-removebg-preview.png)](https://postimg.cc/3Wt46nsL) width="300">
+ [![1002184944-removebg-preview.png](https://i.postimg.cc/X7bfrPQ0/1002184944-removebg-preview.png)](https://postimg.cc/3Wt46nsL) 
 
 ### sһᥱ/һᥱr　　ᥲ⍴ᥲ𝗍һᥱ𝗍іᥴ !
 ### ♥︎♥︎♥︎
